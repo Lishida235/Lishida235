@@ -1,4 +1,4 @@
-### Hi there My nam is Lishida Hamilton 
+### Hello My name is Lishida Hamilton 
 IT PROFESSIONAL👋
 
 <<p align="center">
