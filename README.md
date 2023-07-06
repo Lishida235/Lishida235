@@ -1,4 +1,5 @@
-### Hi there 👋
+### Hi there My nam is Lishida Hamilton 
+IT PROFESSIONAL👋
 
 <<p align="center">
 <img src="https://i.imgur.com/Clzj7Xs.png" alt="osTicket logo"/>
